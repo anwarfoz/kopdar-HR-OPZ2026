@@ -1,0 +1,1 @@
+# kopdar-HR-OPZ2026
